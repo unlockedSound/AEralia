@@ -26,6 +26,6 @@ Lord's Personal Wealth: ~1,500gp
 - Vero's Theater
 	- Large amphitheater on south side of town
 	- Sits atop the highest hill in Verosford to protect from flooding when river rises.
-- ### The Wet Wheel
-- ###### The River's Bed
+- The Wet Wheel
+- The River's Bed
 - The Hidden Oxbox

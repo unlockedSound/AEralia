@@ -12,6 +12,6 @@ Appearance: A slender figure of slightly above average height. His face and ears
 - Has an assistant ???.
 
 > [!warning]- Spoilers
-> Note: has been replaced by a Rakshasa, [[Godine]], who is using the position of power to hide his killings and blame the hag [[Insus Melva]]
+>Note: has been replaced by a Rakshasa, [[Godine]], who is using the position of power to hide his killings and blame the hag [[Insus Melva]]
 
 

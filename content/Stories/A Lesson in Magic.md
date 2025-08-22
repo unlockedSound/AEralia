@@ -1,61 +1,3 @@
-“You’ll have to try harder next session if you hope to ever hope to by Mother Tajret” Byrach stated as she scrutinized the notes on her desk and their subject, the young woman in front of her. 
-
-“Yes Mother.” 
-
-Wagging a finger Byrach continued “the task was to create a novel potion. While you did succeed at improving upon this lightning resistance recipe it wasn’t quite enough for you to pass.” She attempts to make eye contact with the student, Genevieve Awserti,  but only gets to eye the top of her head, brown pony tail dropping to one side. “My daughter, raise your head. Be proud. You’ve done very good work. I don’t mean to discourage you. For after all, you are one of the select few to be taught in the central tower of Akkelare.” Genevieve met her Mother’s eyes and Byrach smiled back. “The only one to pass this time was Reita with that strange ‘crystal anti-venom’ she produced. Go find her and speak with her on the work! Continue learning and maybe one day you could even be one of the witches.”
-
-“Yes Mother!” Genevieve’s ponytail whips forward and back as she bows deeply and turns to scurry from the room the soft click behind her leaving Byrach alone to consider the girl’s future. There was always the option to ask Preta to peer into her orb or flip a few cards over and see if Genevieve’s success would ever be more than just that of a court magician “but what fun would that be” Byrach announces to herself placing her hands on her hips and looking down the hall after her young student. 
-
-
-
-
-
-
-
-#Stories #leylinia #witches 
-
-
-Note: 
-who is Byrach? 
-The witch of knowledge. A human by birth given near immortality through her claiming the mantle of the witch of knowledge. 
-
-Byrach was an orphan due to a magically enhanced natural disaster that swept across the north-eastern edge of Centrium, the necro-storm. The necrotic energy infused storm, the source of which is still unexplained, stole the lives of a large swath of the regions inhabitants including most of Byrach’s family and fellow villagers from her farming village. She hid as those who survived the initial event attempted to flee. Only a few surviving the attempt. 
-
-Byrach, on the verge of death was rescued by the former Witch of Knowledge and current Witch of Secrets Tajret. Tajret took Byrach in at her outpost, the now quietly famous Akkelarre Academy, where Byrach spent the rest of her childhood studying. While Tajret kept her away from magic at first Byrach’s exposure to the storm had infused her with necrotic magic giving her a strong affinity with the school of magic and the magical arts in general. Byrach would grow up, coming to teach at the academy while forever studying under her adoptive mother Tajret. 
-
-When Byrach was turning 70 Tajret’s mother Retsha visited Tajret to inform her of her decision to pass the mantle of Mother of Secrets on to Tajret. In kind Tajret selected Byrach to take her mantle. Shortly after the ritual was held in the presence of all the great witches and the grandmother witch herself, Baba Yaga, Retsha committed the ritual, igniting her soul and separating it from the divine power given to her by Baba Yaga. Baba Yaga would bid her child Retsha goodbye, releasing her soul from the vow, long sworn, to wander the stars. Turning to Tajret, Baba Yaga conducted the ritual swapping the mantle of secrets for that of knowledge before turning to Byrach and asking
-
-“Byrach, daughter of my daughter. You stand before your aunts and mother and before your grandmother on this day. You have studied for your natural life, you have proven your strength of heart and mind and overcome great hardship to become worthy.  So much so that your mother, Tajret, once of knowledge, now of secrets, would select you to stand as her daughter eternal. I seek your consent to take this power, to name yourself a great witch, a daughter of Baba Yaga, an eternal force to maintain the order set forth by the Baba Yaga, three as one, to bear the mantle of knowledge as your mother has. 
-
-With a solemn nod Byrach announced “great mother of Witches, Baba Yaga, it would honor me to stand as Tajret’s child and your grand child in kind. For however long. A decade, millennia, or longer. I shall honor you, her, my aunts, and all those who have come before and after.”
-
-With a smile, Baba Yaga steps to Byrach. Gliding elegantly across the floor and raising free hand, gently raising Byrach’s head to look her in the eyes. 
-
-“By Æ, she’s beautiful.” Byrach thought as she took in Baba Yaga’s visage up close, the shadow cast by her cloak no longer obscuring her face. 
-
-With a start Byrach jolted awakened and struggled to lift herself from her bed. “Now take your time daughter” Tajret called from a chair across the room. “Becoming a true witch takes a lot out of you. Still feeling it myself though it’s much easier to become a grandmother for what it’s worth.”
-
-“What happened?”
-
-“Simple. Your grandmother took my old power and infused your soul with it. As I said, it takes a lot out of you. So you passed out.”
-
-Byrach blinked at Tajret paused and thought hard for a moment. “So, what exactly do I call you now anyways?”
-
-With a bellowing laugh and a smile Tajret says mother, master, either is just fine. Our relationship is different now. You are no longer a pupil learning from thousands of years of experience I’ve accumulated and the thousands of years of the witches before me. You now contain all of it as I contain all of Retsha’s and her predecessors. I may still rank above you, a grandmother witch vs you, a mother witch, but to put it simply the gap between us is now infinitesimal relative to what it was before. You’ll see soon though. For now just rest. 
-
-Byrach turned over and, wiping the sweat from her face, began to recount the dream in a note book. “The twentieth this evening along. When will it cease. Alright, this time it was a meadow in bloom, on the side of a mountain’s base. Snow and ice above but below an absolutely beautiful oasis 
-
-————————
-
-Baba Yaga - young adult in appearance. Maybe 19 at most. Dressed in a sleek dress that falls just below the knees, with an open neckline showing partial shoulders and collar bone, and long sleeves. A polite hour glass shape she would only be likely to draw attention in a crowd from her piercing yellow eyes. Those able to detect magic would discover a huge aura on the form of a towering figure draped in uncountable ragged layers of cloth. Charms of various materials and in various forms including bone, flesh, crystal, spirit and on necklaces, bracelets, earrings, and more hang from the figure and the clothing. Their hands and fingers appearing too long to be quite human and aged beyond mortal life’s limits. 
-
-While looking like a child baba yaga is an origin of a lost reality who came Æ’s world during the era of Origination. Upon arrival her form fractured and created the Baba Yaga three. As Baba Yaga the witch her focus is primarily on order and she naturally found the shadowfell a natural place to draw on. Her wisdom is near endless and her power on the order of an origin but as a guest in this world she tends 
-———————————————
-
-
-
-V2.
-
 The winds swirled up the sides of the tower, smoothly traversing the crystalline structure with its uneven and angular protrusions. Even magically carved crystal is rather difficult to get perfectly smooth and the tower, standing just over seven stories tall was a sight to behold and a feat of magic to behold. The gust politely rushed past the penultimate window rattling the open frame softly, like an expected knock at a door.
 
 “Well Byrach how’s this current batch of students turning out?”
@@ -145,3 +87,40 @@ Byrach, standing and taking the last dregs of the liquor, couldn’t resist “I
 
 “No, I’m serious. I won’t break out coven but I’ll do everything in my power. If my student isn’t enough maybe it’s time for the ways of Akkelare to change.”  Tajret looked up at her daughter, survivor of the necrostorm, last of the people of the lost kingdom of Eldeseen, and Witch of Knowledge. She was a great sorceress long before she became a witch. She had process even as Tajret attempted to keep magic from her. Maybe, just maybe, Byrach was right. Tajret rolled onto her back and watched the stars as they faded and whispered to them, just quiet enough for Byrach to not hear, “I wonder what Denor and mother will have to say about that.”
 
+>[!note]- v1
+>	“You’ll have to try harder next session if you hope to ever hope to by Mother Tajret” Byrach stated as she scrutinized the notes on her desk and their subject, the young woman in front of her. 
+>	“Yes Mother.”  
+> 	Wagging a finger Byrach continued “the task was to create a novel potion. While you did succeed at improving upon this lightning resistance recipe it wasn’t quite enough for you to pass.” She attempts to make eye contact with the student, Genevieve Awserti,  but only gets to eye the top of her head, brown pony tail dropping to one side. “My daughter, raise your head. Be proud. You’ve done very good work. I don’t mean to discourage you. For after all, you are one of the select few to be taught in the central tower of Akkelare.” Genevieve met her Mother’s eyes and Byrach smiled back. “The only one to pass this time was Reita with that strange ‘crystal anti-venom’ she produced. Go find her and speak with her on the work! Continue learning and maybe one day you could even be one of the witches.”  
+> 	- “Yes Mother!” Genevieve’s ponytail whips forward and back as she bows deeply and turns to scurry from the room the soft click behind her leaving Byrach alone to consider the girl’s future. There was always the option to ask Preta to peer into her orb or flip a few cards over and see if Genevieve’s success would ever be more than just that of a court magician “but what fun would that be” Byrach announces to herself placing her hands on her hips and looking down the hall after her young student. 
+> Note: who is Byrach? The witch of knowledge. A human by birth given near immortality through her claiming the mantle of the witch of knowledge.  
+> - Byrach was an orphan due to a magically enhanced natural disaster that swept across the north-eastern edge of Centrium, the necro-storm. The necrotic energy infused storm, the source of which is still unexplained, stole the lives of a large swath of the regions inhabitants including most of Byrach’s family and fellow villagers from her farming village. She hid as those who survived the initial event attempted to flee. Only a few surviving the attempt. 
+> - Byrach, on the verge of death was rescued by the former Witch of Knowledge and current Witch of Secrets Tajret. Tajret took Byrach in at her outpost, the now quietly famous Akkelarre Academy, where Byrach spent the rest of her childhood studying. While Tajret kept her away from magic at first Byrach’s exposure to the storm had infused her with necrotic magic giving her a strong affinity with the school of magic and the magical arts in general. Byrach would grow up, coming to teach at the academy while forever studying under her adoptive mother Tajret. 
+> - When Byrach was turning 70 Tajret’s mother Retsha visited Tajret to inform her of her decision to pass the mantle of Mother of Secrets on to Tajret. In kind Tajret selected Byrach to take her mantle. Shortly after the ritual was held in the presence of all the great witches and the grandmother witch herself, Baba Yaga, Retsha committed the ritual, igniting her soul and separating it from the divine power given to her by Baba Yaga. Baba Yaga would bid her child Retsha goodbye, releasing her soul from the vow, long sworn, to wander the stars. Turning to Tajret, Baba Yaga conducted the ritual swapping the mantle of secrets for that of knowledge before turning to Byrach and asking
+> 
+> 	"Byrach, daughter of my daughter. You stand before your aunts and mother and before your grandmother on this day. You have studied for your natural life, you have proven your strength of heart and mind and overcome great hardship to become worthy.  So much so that your mother, Tajret, once of knowledge, now of secrets, would select you to stand as her daughter eternal. I seek your consent to take this power, to name yourself a great witch, a daughter of Baba Yaga, an eternal force to maintain the order set forth by the Baba Yaga, three as one, to bear the mantle of knowledge as your mother has. 
+> 	
+> 	With a solemn nod Byrach announced “great mother of Witches, Baba Yaga, it would honor me to stand as Tajret’s child and your grand child in kind. For however long. A decade, millennia, or longer. I shall honor you, her, my aunts, and all those who have come before and after.”
+> 	
+> 	With a smile, Baba Yaga steps to Byrach. Gliding elegantly across the floor and raising free hand, gently raising Byrach’s head to look her in the eyes. 
+> 	
+> 	“By Æ, she’s beautiful.” Byrach thought as she took in Baba Yaga’s visage up close, the shadow cast by her cloak no longer obscuring her face. 
+> 	
+> 	With a start Byrach jolted awakened and struggled to lift herself from her bed. “Now take your time daughter” Tajret called from a chair across the room. “Becoming a true witch takes a lot out of you. Still feeling it myself though it’s much easier to become a grandmother for what it’s worth.”
+> 	
+> 	“What happened?”
+> 	
+> 	“Simple. Your grandmother took my old power and infused your soul with it. As I said, it takes a lot out of you. So you passed out.”
+> 	
+> 	Byrach blinked at Tajret paused and thought hard for a moment. “So, what exactly do I call you now anyways?”
+> 	
+> 	With a bellowing laugh and a smile Tajret says mother, master, either is just fine. Our relationship is different now. You are no longer a pupil learning from thousands of years of experience I’ve accumulated and the thousands of years of the witches before me. You now contain all of it as I contain all of Retsha’s and her predecessors. I may still rank above you, a grandmother witch vs you, a mother witch, but to put it simply the gap between us is now infinitesimal relative to what it was before. You’ll see soon though. For now just rest. 
+> 	
+> 	Byrach turned over and, wiping the sweat from her face, began to recount the dream in a note book. “The twentieth this evening along. When will it cease. Alright, this time it was a meadow in bloom, on the side of a mountain’s base. Snow and ice above but below an absolutely beautiful oasis 
+> 
+> ————————
+> Baba Yaga - young adult in appearance. Maybe 19 at most. Dressed in a sleek dress that falls just below the knees, with an open neckline showing partial shoulders and collar bone, and long sleeves. A polite hour glass shape she would only be likely to draw attention in a crowd from her piercing yellow eyes. Those able to detect magic would discover a huge aura on the form of a towering figure draped in uncountable ragged layers of cloth. Charms of various materials and in various forms including bone, flesh, crystal, spirit and on necklaces, bracelets, earrings, and more hang from the figure and the clothing. Their hands and fingers appearing too long to be quite human and aged beyond mortal life’s limits. 
+> 
+> While looking like a child baba yaga is an origin of a lost reality who came Æ’s world during the era of Origination. Upon arrival her form fractured and created the Baba Yaga three. As Baba Yaga the witch her focus is primarily on order and she naturally found the shadowfell a natural place to draw on. Her wisdom is near endless and her power on the order of an origin but as a guest in this world she tends 
+> ———————————————
+
+#Stories #leylinia #witches 
