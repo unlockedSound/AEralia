@@ -7,4 +7,15 @@ The major port of [[Kingdom of Sir'dal|Sir'dal]] located along it's [[Sir'dalian
 	- The Royal Contract is an annual contract for managing trade for the royal house of Sir'dal. A bit of research reveals that the contract is believed to be worth something on the order of 10,000 gold for the Trading houses owner that wins it. While the exact number varies year to year and is highly dependent on the nature of the house that wins it the estimated total merchandise moved during the contract is somewhere between 30,000 and 50,000 gold. How much of that an individual merchant takes home is just a question of connections and negotiations. 
 
 ## Key Figures
+- [[Old Man Jeang Rang, the Great Trader]]
+- [[Versa, Head Priestess of Mer’jaz]]
+- [[Lyrya Cador]]
+- [[Brunor Throehdar, Head of Brunor's Traders]]
+- [[Master Trader, Alden Grenric]]
+- [[Quenvianna the Pointed]]
 - 
+- 
+- 
+- [[Nalias Siradus, Princess of Sir'dal]]
+- [[Wyndra the Unseen, Assassin of the House of Sir'dal]]
+- [[Irus the Starwatcher, Wizard of the House of Sir'dal]]
