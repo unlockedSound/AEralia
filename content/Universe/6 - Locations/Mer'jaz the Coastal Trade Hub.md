@@ -11,11 +11,12 @@ The major port of [[Kingdom of Sir'dal|Sir'dal]] located along it's [[Sir'dalian
 - [[Versa, Head Priestess of Mer’jaz]]
 - [[Lyrya Cador]]
 - [[Brunor Throehdar, Head of Brunor's Traders]]
-- [[Master Trader, Alden Grenric]]
-- [[Quenvianna the Pointed]]
-- 
-- 
-- 
+- [[Alden Grenric, Master Trader]]
+- [[Quenvianna the Pointed, Head of Fare Winds Trading Company]]
+- [[Saora Silversong, Co-owner of the Sisters Merchantile]]
+- [[Yorina Silversong, Co-owner of the Sisters Merchantile]]
+- [[Dwadin, Head Banker of the Ship's Holdings]]
 - [[Nalias Siradus, Princess of Sir'dal]]
 - [[Wyndra the Unseen, Assassin of the House of Sir'dal]]
 - [[Irus the Starwatcher, Wizard of the House of Sir'dal]]
+- 
