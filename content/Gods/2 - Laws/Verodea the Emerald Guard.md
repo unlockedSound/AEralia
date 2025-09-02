@@ -7,7 +7,7 @@ Elemental
 Earth
 
 ## Artifact
-[[Verodea's Earthen Shield]] - Verodea's great shield made of earthen materials including wood and a range of metals. Often depicted with the legendary [[origin tree]] in it's centered who's design wraps or centers a single massive emerald of otherworldly quality.
+[[Verodea's Emerald Shield]] - Verodea's great shield made of earthen materials including wood and a range of metals. Often depicted with the legendary [[origin tree]] in it's centered who's design wraps or centers a single massive emerald of otherworldly quality.
 ## Calendar
 10 - ODEA
 

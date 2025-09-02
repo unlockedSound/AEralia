@@ -7,7 +7,7 @@ Elemental
 Water
 
 ## Artifact
-[[Alcenomo's Bangles of Water, Ice, and Snow ]]- Alecenomo's set of bangles. The three bands, made of water, snow, and ice respectively are rumored to be able to adjust to it's owners size and hold their state no matter the temperature of the environment around them. It is said that each bangle contains a piece of the most beautiful sapphire to have ever existed or that will ever exist.
+[[Alcenomo's Sapphire Bangles ]]- Alecenomo's set of bangles. The three bands, made of water, snow, and ice respectively are rumored to be able to adjust to it's owners size and hold their state no matter the temperature of the environment around them. It is said that each bangle contains a piece of the most beautiful sapphire to have ever existed or that will ever exist.
 ## Calendar
 1 - CENO
 
