@@ -1,7 +1,7 @@
 *Bah-late*
 
 ## Lineage
-Æther-kind
+Aetherian
 
 ## Concept
 Exchange
