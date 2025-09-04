@@ -1,21 +1,12 @@
 *Dry-lum*
 
 ## Overview
-Location(s): *see spoilers*
-Stat block: Rakshasa
-Role: *see spoilers*
-Appearance: A tall tiger with greying orange fur with black stripes and intense brown-red cats-eyes.
+Location(s): With [[Shalify Hebblebrook]] 
+Stat block: https://www.dndbeyond.com/monsters/5762198-drylum-the-fellfay
+Role: Swore undying fealty to [[Shalify Hebblebrook]]
+Appearance: A short figure with dark grey-blue skin. It's eyes are a grey-green tone and they tend to wear a black cloak with their hood pulled up.
 Mount: [[Kevin the Giant Rat]]
 
 ## Character
-*see spoilers*
-
-
-> [!warning]- Spoilers
-> Overview
-> - Location(s): [[Verosford]]
-> - Role: Impersonating [[Baron Galleen Venduil]]
-> Character
-> - A wicked [[Rakshasa]] who murdered the Baron and took his place. 
-> - Has cut a deal with [[Insus Melva]] to pass off blame for missing children
+Drylum once served [[Rebeccara Insus the Wicked Twin]] attacking a small farm outside of [[Verosford]] until [[Shalify Hebblebrook]] and her friends interfered and eventually lead Rebeccara to kill Drylum in front of Shalify. Shalify's swift action and healing saved Drylum from death, and, given how she saved his life, he offered his eternal service to her.
 
