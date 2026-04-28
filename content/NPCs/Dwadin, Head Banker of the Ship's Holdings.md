@@ -1,0 +1,1 @@
+- [[Saora Silversong, Co-owner of the Sisters Merchantile]] and [[Yorina Silversong, Co-owner of the Sisters Merchantile]] have a deal with him for a ship that's expected to be ready in about a year or two (prior to the involvement of [[Men in Hats and Co.]])

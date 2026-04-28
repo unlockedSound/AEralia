@@ -6,7 +6,7 @@
 ## Concept
 Death
 ## Artifact
-[[Durcascus's Grand Scythe]]]] - a metal staff topped with a massive curved scythe blade.
+[[Durcascus's Bladed Rod]] - a metal staff topped with a massive curved scythe blade.
 
 ## Overview
 The god of death and endings. Youngest brother of the Origin's Laws of Mortal Life. A killer and bringer of death and endings. His presence with his eldest sister [[Dailawni (Dawn) of the Beginning|Dawn]], created mortal life. With his other siblings [[???]] they form the laws that guide the cycle of mortal lives and form the balance amongst the non-divine who live in [[Æralia]]. Story has it that while the gods created Dawn first and Dusk last amongst the Orgin's Laws of Mortal Life the two are twins.

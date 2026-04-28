@@ -1,7 +1,7 @@
 *Nil-tis*
 
 ## Lineage
-Fey-kind
+Feyfolk
 
 ## Concept
 [[Feyland]]/Chaos

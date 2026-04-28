@@ -1,0 +1,4 @@
+# Lesser Aspects
+As a result of divine power and magic being synonymous due to [[Æ]]'s designs and the fact that magic is everywhere there are times when individuals draw some divinity to them. While this normally doesn't cause anything in particular to occur it can occasionally happen at a fast enough rate or with enough consistency to cause the individual to become permanently charged with some amount of divine power resulting in the creation of a lesser aspect.
+
+Lesser aspects generally are unaware of their status as such but tend to stand out from others as the best in their crafts or specialties. They also tend to find themselves drawn to other individuals touched by fate, luck, or other divine forces.

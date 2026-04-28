@@ -8,8 +8,8 @@ Appearance: A slender figure of slightly above average height. His face and ears
 
 ## Character
 - A generally pleasant fellow.
-- His son, ???, is studying in LYM and looks to serve the Duke as an expert/assistant.
-- Has an assistant ???.
+- His son, Alforus, is studying in LYM and looks to serve the Duke as an expert/assistant.
+- Has an assistant Sophia who has a daughter Louisa.
 
 > [!warning]- Spoilers
 >Note: has been replaced by a Rakshasa, [[Godine]], who is using the position of power to hide his killings and blame the hag [[Insus Melva]]

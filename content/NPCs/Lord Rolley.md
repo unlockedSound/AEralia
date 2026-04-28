@@ -1,0 +1,2 @@
+- son injured by [[Timothy Watkins]] in a duel
+- in Mer'jaz looking to invest (and hearing rumors about Watkins)

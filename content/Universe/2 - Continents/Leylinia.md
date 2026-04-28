@@ -3,10 +3,10 @@
 ## Regions
 - [[Leylinian Mountains]]
 - [[Sir'dalian Desert|Sir'dalian Desert]]
-- [[Tripoint]]
+- [[Tripoint, Greater Kingdom]]
 - [[United Temperate States]]
 - [[Crimson Coast]]
-- [[Alcern]]
+- [[Southern Traders Union]]
 - [[Alumis Mountains]]
 - [[Azure Marshes]]
 - 

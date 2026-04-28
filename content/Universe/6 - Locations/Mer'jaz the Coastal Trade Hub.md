@@ -1,6 +1,6 @@
 ![[Mer'jaz Map.jpg]]
 ## Overview
-The major port of [[Kingdom of Sir'dal|Sir'dal]] located along it's [[Sir'dalian Coast|coastline]] and the primary source of goods for [[Rawiya the Seat of Sir'dal]]. Famous for it's bustling trading culture including the annual competition for the Sir'dalian Royal Contract.
+The major port of [[Kingdom of Sir'dal|Sir'dal]] located along it's [[Sir'dalian Coast|coastline]] and the primary source of goods for [[Rawi'ya the Seat of Sir'dal]]. Famous for it's bustling trading culture including the annual competition for the Sir'dalian Royal Contract.
 
 ## Key Notes
 - Mer'jaz is the location of the Sir'dalian Season an annual event spanning the months of Odea, Ceno, and Phia in which trading houses compete to prove their value to the Sir'dalian royal house and acquire the Royal Contract.

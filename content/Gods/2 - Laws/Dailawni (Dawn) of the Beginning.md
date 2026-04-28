@@ -6,7 +6,7 @@
 ## Concept
 Life
 ## Artifact
-[[Dailawni's Winged Staff]] - a metal staff topped in a split ring with a pair of ethereal wings projecting from each half.
+[[Dailawni's Winged Rod]] - a metal staff topped in a split ring with a pair of ethereal wings projecting from each half.
 
 ## Overview
 The god of life and beginnings. Eldest sister of the Origin's Laws of mortal life. A healer and bringer of life and beginnings. Her presence with her youngest brother, [[Durcascus (Dusk) of the End|Dusk]], created mortal life. With her other siblings [[???]] they form the laws that guide the cycle of mortal lives and form the balance amongst the non-divine who live in [[Æralia]]. Story has it that while the gods created Dawn first and Dusk last amongst the Orgin's Laws of Mortal Life the two are twins.

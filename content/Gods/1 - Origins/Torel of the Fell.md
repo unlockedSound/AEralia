@@ -1,7 +1,7 @@
 *Tor-el*
 
 ## Lineage
-Fell-kind
+Fellfolk
 
 ## Concept
 [[Felland]]/Order

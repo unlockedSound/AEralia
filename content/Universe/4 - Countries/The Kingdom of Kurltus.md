@@ -1,0 +1,2 @@
+# Domains 
+- [[Kurltus, Capital City]]
